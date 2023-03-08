@@ -10,3 +10,6 @@
 - [Скринкасть лр2 часть2](https://youtu.be/fdhjOQBWSyc)
 - [Скринкаст презентации лр2](https://youtu.be/XdnXrXyAZR4)
 
+## Лабораторная работа №5
+
+- - [Плейлист лр5](https://www.youtube.com/playlist?list=PLA7mL7gbr-zTCBue8g8ab-XeoD2o6htQi)
